@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GanashreeKM
-- 👀 I’m interested in watching TV,
+- 👀 I’m interested in watching TV,drawing,cooking,leaning new things.
 - 🌱 I’m currently pursuing BCA final year 
 - 📫 How to reach me ganashreekm18@gmail.com
 
